@@ -1,4 +1,4 @@
-# Gustav's julegaveønsker 2022 🎄🎁
+# Gustavs julegaveønsker 2022 🎄🎁
 
 - Hvide T-shirts (510 fra ID), størrelse Medium: https://www.tee4you.dk/produkter/den-klassiske-t-time-t-shirt/
 - Tilskud til nye bukser
